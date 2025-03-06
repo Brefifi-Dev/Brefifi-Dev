@@ -1,4 +1,4 @@
-## Hello, me chamo Brenda Figuereido!👋
+## Hello, call me Brenda Figuereido!👋
 🚀 About me
 ----------------------------------------------
 🎓 I am training with Alura Oracle Next Education
